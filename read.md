@@ -1,0 +1,1 @@
+![alt text](<ChatGPT Image Jan 12, 2026, 10_13_10 AM.png>)
